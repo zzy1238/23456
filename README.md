@@ -23,4 +23,4 @@
 5. 遵守法律与合规性
 最后，确保平台符合相关国家和地区的法律法规是至关重要的。成人内容类平台必须有严格的年龄验证机制，确保内容仅对成年用户开放。同时，合规的运营方式有助于增强平台的可信度和用户信任，进一步提高网站的排名。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/zzy1238/23456 ）</span>
